@@ -5,6 +5,10 @@ Stripchat is one of the most popular adult cam platforms in the world. With mill
 )
 [![stripchat free live cam](https://avatars.githubusercontent.com/u/234598579?s=200&v=4)](https://tech-astuce.com)
 
+<p align="center">
+  <img src="https://avatars.githubusercontent.com/u/234598579?s=200&v=4" alt="Avatar" width="100%">
+</p>
+
 
 ## What is Stripchat Exactly?
 
